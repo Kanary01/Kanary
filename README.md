@@ -1,1 +1,1 @@
-# Kanary
+word of hope
